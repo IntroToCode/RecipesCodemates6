@@ -1,4 +1,4 @@
-# Chocolate Chip Pancakes
+# Strawberry Chocolate Chip Pancakes
 
 ## Servings: 
 5 people
@@ -11,6 +11,7 @@
 1 cup milk
 2 eggs
 1/2 cup of chocolate chips
+10 baskets of strawberries! 
 
 ## Equipment needed:
 Medium Bowl
@@ -24,7 +25,9 @@ Spatula
 2. Stir in chocolate chips
 3. Heat griddle to 350 degrees
 4. Pour less than 1/4 cup of batter onto the griddle
-5. Cokk until both sides turn golden brown
+5. Cook until both sides turn golden brown
+6. Slice the strawberries into bite-sized pieces
+7. Spring strawberries on top of the pancakes
 
 
 ### Notes:
