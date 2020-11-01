@@ -15,6 +15,7 @@ This recipe will take about 20 minutes to prepare to make 5 sandwiches.
 Blackberry jelly
 Apricot jelly
 Chunky Peanut Butter
+5 slices of ham
 
 ## Equipment needed:
 
@@ -25,7 +26,7 @@ Pan (and stove)
 
 ## Steps for preparation:
 
-Lay out all pieces of bread on your plates
+Lay out all pieces of bread on your plates and add a slice of ham per sandwich 
 Spread the jelly on 5 of the pieces of bread
 Spread the peanut butter on 5 of the other pieces of bread
 Put one of each jelly and peanut butter pieces of bread together to make 5 sandwiches
