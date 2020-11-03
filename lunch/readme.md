@@ -16,6 +16,7 @@ Blackberry jelly
 Apricot jelly
 Chunky "Peanut" Wowbutter (nut-free!)
 5 slices of ham
+5 tangerine sparking water cans
 
 ## Equipment needed:
 
@@ -34,7 +35,7 @@ Put one of each jelly and wowbutter pieces of bread together to make 5 sandwiche
 Put the stove on medium heat and melt a small piece of butter
 Lightly grill each individual sandwich 1 by 1, adding and melting a new piece of butter before each un-grilled sandwich is placed on the pan.
 
-Enjoy the grilled gooey deliciousness of these fabulous PB&J sando's like no other!
+Enjoy the grilled gooey deliciousness of these fabulous PB&J sando's like no other! Crack open a can of sparking water to wash it all down!
 
 ### Notes:
 
