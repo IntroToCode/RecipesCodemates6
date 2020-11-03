@@ -24,7 +24,7 @@ Pan, wooden spoon
 ### Notes: 
 No oil with water!
 
-Optional (but very important) wine pairing: Sangiovese for a medium-bodied red wine that is positively scrumptious with tomato sauce. For those who don't drink alcoholic libations...this spaghetti meal works well with a class non-flavored San Pellegrino sparkling water with 3 ice cubes :) 
+Optional (but very important) wine pairing: Sangiovese for a medium-bodied red wine that is positively scrumptious with tomato sauce. For those who don't drink alcoholic libations...this spaghetti meal works well with a class non-flavored San Pellegrino sparkling water with 3 ice cubes :). Also if you prefer a non-alcoholic non-sparkling beverage a simple cranberry juice with ice to cut the carbs of the pasta.
 
 
 ### Codemates #
