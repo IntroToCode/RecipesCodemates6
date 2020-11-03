@@ -24,6 +24,8 @@ Pan, wooden spoon
 ### Notes: 
 No oil with water!
 
+Optional (but very important) wine pairing: Sangiovese for a medium-bodied red wine that is positively scrumptious with tomato sauce.
+
 
 ### Codemates #
 @unakim
